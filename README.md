@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @simunposavac
+- 👀 I’m interested in solving problems
+- 📫 Reach out on simunposavac.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: its better to wake up early than work late
